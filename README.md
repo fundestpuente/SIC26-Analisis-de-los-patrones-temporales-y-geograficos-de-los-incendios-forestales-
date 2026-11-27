@@ -1,0 +1,1 @@
+# SIC26-Analisis-de-los-patrones-temporales-y-geograficos-de-los-incendios-forestales-
